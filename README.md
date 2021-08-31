@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Hard007-tech
 - 👀 I’m interested in CYBER SECURITY
 - 🌱 I’m currently learning 
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me by Message or Comments
+<!--- 💞️ I’m looking to collaborate on ... --->
+- 📫 Reach me by Message or Comments
 
 - ❤ I HATE A LOT OF THINGS, AND, I DON'T PARTICULARLY LIKE ANYTHING 😊
 
